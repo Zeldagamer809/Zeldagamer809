@@ -1,0 +1,7 @@
+-  Hello, I am known as @Zeldagamer809
+- I am interested in various forms of technology from many spheres of design
+- I’m currently learning the functions of artificial intelligence and its general applications. 
+- Not currently able to collaborate on projects
+- Email-Loz.elm.123@gmail.com
+- Pronouns-He,Him,Whoever
+- All who consume the compound known as dihydrogen monoxide will perish.
